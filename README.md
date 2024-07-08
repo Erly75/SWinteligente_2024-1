@@ -1,0 +1,1 @@
+# SWinteligente_2024-1
